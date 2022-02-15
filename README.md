@@ -7,3 +7,11 @@ tequila
 el contole
 
 edit ke 1
+terimakasi
+
+edit ke 2
+banyak
+
+
+edit ke 3
+guys
